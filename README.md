@@ -4,4 +4,4 @@ We are completely shut down at present, though we are determined to be back with
 
 ### Support or Contact
 
-Please email to palak@outlook.in
+Please email to palak@outlook.in, just in case if you still want to connect for something.
