@@ -1,6 +1,6 @@
-## Welcome to GitHub Pages
+## Out of service
 
-This is a public website repository of a dhingu.com.
+We are completely shut down at present, though we are determined to be back with the BANG ! But thats the future we are talking about.
 
 ### Support or Contact
 
